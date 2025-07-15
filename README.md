@@ -1,1 +1,1 @@
-# diyaptel
+# diyapatel
